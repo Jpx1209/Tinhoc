@@ -1,6 +1,6 @@
-#● HPH - TGH A - TGH B - BHD - by fromBluelock  
+●# HPH - TGH A - TGH B - BHD - by fromBluelock  
   ◦ Tất cả bài tập được upload bởi HPH – TGH A – TGH B – BHD thuộc Bluelock
 
-#● DCH  
+●# DCH  
   ◦ WIBU MẠNH NHẤT HEHEE  
   ◦ HEHEE
